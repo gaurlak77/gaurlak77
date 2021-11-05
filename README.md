@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @gaurlak77 / Lakshita Gaur
+- 👀 I’m interested in Technology.
+- 🌱 I’m currently learning C and python.
+- 📫 My email is - gaurlak77o@gmail.com , Instagram id - @gaurlak77
